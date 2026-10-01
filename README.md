@@ -8,7 +8,7 @@ No DNIs. So long as you aren't, like, actually evil or something, feel free to t
 
 If you want to be my friend, just know that I am supremely annoying once I get comfortable.
 
-Also, I will cuddle anyone with c+h or cudcomf in their name so watch out (smug) 
+Also, I will cuddle anyone with c+h pls in their name so watch out (smug) 
 
 So, yeah. That's a bit about me. Time for me to forget about this account until I decide this bio is too embarrassing a month from now. 
 
