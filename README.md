@@ -1,4 +1,4 @@
-A little bit about me:
+# A little bit about me:
 
 As you can probably see, I am a huge fan of doujin music. I am also currently obsessed with Playing Death Games to Put Food on the Table. Aside from those things, I like Japanese idols, rhythm games (Arcaea and Rotaeno mostly), Minecraft, and Terraria. 
 
@@ -13,3 +13,13 @@ Also, I will cuddle anyone with c+h pls in their name so watch out (smug)
 So, yeah. That's a bit about me. Time for me to forget about this account until I decide this bio is too embarrassing a month from now. 
 
 Wishing everyone who's reading this a good day~! ♡
+         
+         
+  
+  
+ 
+      
+  ###  Psst... 
+  Sign my atabook for a weird Japanese word/term (I love collecting useless vocabulary and NOT learning ANYTHING useful), or to just ask me stuff idk. I want an excuse to talk about my collection of weird words (pleading).
+          
+  https://justahatsukiyurafan.atabook.org/
